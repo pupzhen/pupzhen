@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**pupzhen/pupzhen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　　![](https://komarev.com/ghpvc/?username=yumdalton&color=ebf4fd&label=　ʚɞ゛݁tigerss　　) <img width="60" height="40" alt="Image" src="https://files.catbox.moe/3iu5z8.gif" />
 
-Here are some ideas to get you started:
+  <img width="800" height="290" alt="image" src="https://github.com/user-attachments/assets/16b27f15-f53c-4653-b7bf-885c02f63ec5" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
+
+　　M[~` Kim "Horangi" Hong-jin🐯] whispers: GRR I'LL PROTECT YOU MY KITTEN 😏😘 -
+
+  M[Its logan...i tried , ok?...] whispers: Senpai alpha pro max
+
+  M[Cafu irl] whispers: I love u forever
+
