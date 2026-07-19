@@ -1,7 +1,7 @@
 
 　　　　　　![](https://komarev.com/ghpvc/?username=yumdalton&color=ebf4fd&label=　ʚɞ゛݁tigerss　　) <img width="60" height="40" alt="Image" src="https://files.catbox.moe/3iu5z8.gif" />
 
-  <img width="800" height="490" alt="image" src="https://files.catbox.moe/qp1a9o.jpg" />
+  <img width="800" height="700" alt="image" src="https://files.catbox.moe/djym87.png" />
 
 
 　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
