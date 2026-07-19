@@ -4,5 +4,5 @@
 
   <img width="600" height="400" alt="Image" src="https://files.catbox.moe/o9fvd9.png" />
   
-　　　[rentry ♡](https://rentry.co/f9qq8cis) 　𓏼　[prns pge ♡](https://en.pronouns.page/@yum.dalton) 　𓏼　[strawpage 𖹭](https://real-sunday.straw.page)
+　　　links are wip atm
 
